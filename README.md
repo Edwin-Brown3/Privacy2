@@ -1,4 +1,4 @@
-# Zero Hour Rescue Privacy Policy
+# Zero Hour Rescue! Privacy Policy
 **Privacy Policy**
 
 Edwin Brown built the Zero Hour Rescue! app as an Ad Supported app. This SERVICE is provided by Edwin Brown at no cost and is intended for use as is.
